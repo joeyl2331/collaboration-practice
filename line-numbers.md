@@ -8,7 +8,7 @@
 #### 8
 #### Github is really awesome.
 #### 10
-#### I like strawberry icecream
+#### I like chocolate and strawberry icecream
 #### 12
 #### 13
 #### 14
