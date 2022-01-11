@@ -6,7 +6,7 @@
 #### 6
 #### Today is Tuesday
 #### 8
-#### GitHub is really good. 
+#### Github is really awesome.
 #### 10
 #### 11
 #### 12
